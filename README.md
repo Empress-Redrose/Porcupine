@@ -78,3 +78,7 @@ ah pqp, leo, por um acaso tu preparou uma roda da fortuna/ uma borboleta pra mim
 
 ### eu gosto de tu, eu gosto de me dedicar e dar presente pra quem eu amo, e quero fazer isso com meu próprio esforço, não deixei de querer tu por nada n, so não quero parecer nem ser que nem as minas interesseiras que deram em cima de tu, eu sou extremamente orgulhosa, eu gosto de conquistar e ser conquistada, eu fiquei meio pra baixo pq achei que tu queria me descartar tbm, as vezes eu me questiono se tu quer realmente um namoro ou algo sério comigo 
 ### eu sou estressada e tenho língua de chicote, pq ja sabendo disso tu ainda insiste ? 
+
+
+
+### eu tava vendo qual seria tua reação mas era praticamente minha energia refletida pq veja bem, eu so notei quando tava indignada que o repositório tava privado, eu podia ter escondido a parte da insegurança e deixado so flores? podia mas não gosto, se você se incomodar eu paro.
