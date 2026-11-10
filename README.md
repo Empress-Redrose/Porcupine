@@ -74,3 +74,7 @@ ah pqp, leo, por um acaso tu preparou uma roda da fortuna/ uma borboleta pra mim
 
 ### pq tu queria saber se eu jogava limpo ou se eu não mentia? ate ai eu entendo pq nao ajo nas posturas mais diretas, mas po, ate se eu superei meu ex é complicado, mas ok, mas até sobre meu futuro é foda, nem eu sei ao certo esse diabo 
 ### Eu quero desenvolver minha carreira. não quero ouvir nunca mais na minha vida que eu não resolvo minha vida ou que atraso a vida dos outros, é pra isso que eu estudo, eu sei que devia lidar com os traumas mas meu jeito de lidar é empurrando a mim mesma pra um futuro melhor e calmo aonde eu não tenha que viver o mesmo.
+
+
+### eu gosto de tu, eu gosto de me dedicar e dar presente pra quem eu amo, e quero fazer isso com meu próprio esforço, não deixei de querer tu por nada n, so não quero parecer nem ser que nem as minas interesseiras que deram em cima de tu, eu sou extremamente orgulhosa, eu gosto de conquistar e ser conquistada, eu fiquei meio pra baixo pq achei que tu queria me descartar tbm, as vezes eu me questiono se tu quer realmente um namoro ou algo sério comigo 
+### eu sou estressada e tenho língua de chicote, pq ja sabendo disso tu ainda insiste ? 
