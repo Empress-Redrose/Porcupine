@@ -7,3 +7,8 @@
 ### rapaz, agora entendi a quebra de regras, macho, tu tava querendo achar uma forma de me agradar esses dias todo ? tem pergunta que eu não vou comentar mas fiquei tímida, rapaz, cada momento fico mais em shok, ah, isso explica o enamorados invertido quando fui caçar a ficha de Leandro, pra ver se era prestavel, rapaz, eu fiquei tímida. 
 ### o homem indo buscar resposta no além, po, ah vei, eu tenho problema da cabeça, mds, eu so devo ta doida msm, safado, fiz as mesmas perguntas pra tu 
 ### ah pqp, leo, por um acaso tu preparou uma roda da fortuna/ uma borboleta pra mim ? que foi justamente esse caso ? ó vei, to feliz ^-^ sei nem como vou dormir assim, vou gastar minha energia no vitruvio
+### agora ja sabe tudo sobre mim, agora  descobriu que sou chata. Não tem o que eu possa contar mais sobre mim
+### era por isso que não se aproximava ? 
+### eu jogo limpo sim, sou uma pessoa honesta, se minha atitude não tinha provado isso ainda então ainda não estou no nível que deveria estar.
+### poxa, eu fui olhar teu passado pq não queria ativar teu gatilhos, eu não fiquei desconfiando de tu. 
+### eu gosto de dar informações e segredos de presente, agora não precisa mais de mim.
