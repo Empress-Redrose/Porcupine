@@ -1,84 +1,10 @@
-(os textos com espaço pq um foi no onibus, um antes do banho, um pos banho e o ultimo as duas da manhã, bem que lembrei da regra não se responde quem ama as duas da manha mas minha cabeça ja tava pipocada pra raciocinar o significado, eu sei que é algo que eu devia conversar mas não gosto assim como eu sei que tu tbm não gosta de discutir as tuas 
-
-foi vcs que eu to ligada, principalmente tu, obrigado leo
-line veio me dizer que o boy dela falou incentivando ela a arrumar estági, quando ela disse que ele citou tais eu pesquei que tinha coisa aí
-eu dei conselho a ela e ela tava me cantando que a irmã, se passasse pra uma vaga melhor ia recomendar ela e line ficou feliz que Leandro explicou como pra ela, eu achei que ele ia so jogar a informação, ele explicou direitinho pra ela montar um portfólio.
-##$ ela me contando que ele foi ficar com a menina no mato, a menina era usuaria e tinha ido com uma faca pq ficou desconfiada dele, eu ri
-
-ela reparou que sumi no fim de semana, veio me perguntar pq eu tinha sumido em tudo ai expliquei pq eu tava depressiva (meu pai queria que eu resolvesse um monte de coisa, que precisava do cpf dele e dos dados bancários mas nao queria me dar e queria que eu resolvesse sem perguntar, e ainda ficou nos desespero dele perto de mim, eu estourei e ficou o clima maravilhoso em casa)
-agora to bem, descobri habilidades novas quando sem querer parei a ansiedade de line, eu não sabia que enamorados podia ser usado assim n vei
-tu que vai falar pra minha rainha, é pra beber água, piranha bonita é piranha hidratada beba água, se hidrate, se quiser chorar pense, lágrimas é um ótimo hidratante as vezes pro rosto, nao precisa ter vergonha
-eu falei sério, quero me reunir com vocês fora do github
-eu amei isso, obrigado Leo, de coração S2
-porra vei, é foda que tu sabe o que eu gosto, não me da flores mas escuta o que eu digo, po, ah safado, e revoltante, bonito e joga tão bem quanto eu.
-o que tu quer comigo inclusive?
-tu sabe bem que quero um namoro.
-
-
-
-ah vei, saiu enamorados, imperador e as de paus pra minha frase final, ainda saiu o mundo e dez de ouros, que fofinho, oh vei, tu é foda, chega a ser revoltante, o cara sabe exatamente como agradar uma mulher inteligente.
-eu tava marcando de ir pra casa de line, vou ver pra chamar tata apesar que ela nao ta saindo esses dias, aproveitar pra fazer o curso de segurança no pc de line. ( vi anjinho hj, ne que tava comportado o homem, tava estressado tbm, ficou so ouvindo eu fofocando com line, " tu devia ser professora" " eu queria ser, mas garota de programa paga mais" tinha ate esquecido que tava do lado dele, quando lembrei, " meu negócio e programa de computador, o programa que eu faço é esse aqui" ele ficou rindo pq ve, line me perguntou se eu fosse trabalhar numa empresa o que eu ia querer ser " a dona da porra toda" ela riu, pq ela disse que era minha cara dizer isso " mas falando serio mesmo, um estágio, sonho é Júnior" ei po, fiquei na magoa, eu perdi uma pq mandei o currículo errado sem referência a nenhuma das minhas habilidades com ia, vou mandar de novo o currículo certo agora, mandei ate pra line ja que ela agora ta focando carreira tbm agora (ei po, leandro ta tentando fazer ela de lanche nao ne ? pq ele queria sair com ela pra perto da casa dele de noite, primeira coisa que pensei " ta tarde, é perto da minha casa e vapo" eu devo ter passado tempo demais com homem mds, mente muito ma, mas em vossa opinião?
-ah vei to feliz, eu vivendo um romance escrito nas cartas de tarot praticamente literal ei po kkkkkkkkkkkkkk
-eu disse pra ela qie eu tinha muito a vontade de tipo no futuro ser eu e meu amor cada um na sua moto de corrida na BR, eu chegar no trabalho do meu amor e tipo " sobe na garupa BB " " nao amor, pode deixar que eu dirijo" " nao, eu vim te buscar na minha moto a garupa vai ser você " e se meu amor vier me buscar assim no meu trabalho, sonho
-
-
-
-
-
-Tu foi perguntar ao tarot minhas linguagem de afeto num foi?
-caramba vei, fiquei em shok com essa, achei que tu ia querer saber outras coisas
-ah vei, vou dormir feliz
-line vai dar um pouco de frio em leandro mas em minha defesa é pq o pensamento fazer ela de lanche transpareceu na minha cara e ela tava pensando o mesmo ai fudeu. to feliz, acompanhar meu casal pelos bastidores, assim o emocionado se controla e a emocionada tbm (inclusive, algo que eu tava falando com line, é que tipo, pra mim eu não vejo mais questão de ter um relacionamento tradicional em todos os sentidos pq eu ja perdi minha primeira vez,isso de nenhuma forma significa que sou bagunça viu, só namorando, tenho cabeça pra administrar caso n, pra mim to jogando o tempo do outro e o meu fora, e agora que pensei, tu fez tata vir me perguntar indiretamente sobre isso nao foi ? vou nem dizer nada, mas haverá sinais.) ela me perguntando se eu nao fiquei com ninguém antes do meu ex " defina ficar" ai la vai eu explicar do selinho que dei num tampinha no fundamental, em minha defesa, veja bem, eu fiz minha amiga beijar o rapaz que ela achava bonito e ela me fez dar um selinho no cara que eu mais detestava, eu ja era baixinha e o caba um palmo menor que eu ai é foda, eu e ele indo lavar a boca depois dessa, descobri que fui meio que vingada anos depois, lembra do meu amigo tarado? pois é, ele ficou com o tampinha e gravaram video pelo que eu lembre so que o tampinha era do exército, namorava e era da igreja " so por ser do exército fiel não é " mas meu amigo disse que o porem tava em ele ser da igreja pq a mina dele era da igreja, inclusive ele me falou recentemente que se converteu, tava indo pr a igreja e levando a família, fiquei feliz por ele, tava com uma viagem com tudo pago pra Alemanha por um projeto que ganhou prêmio do porto, se era pala ou n, fiquei feliz por ele, finalmente ta seguindo um caminho melhor. (mainha usou o creme que dei a ela e adorou, ta vendo, a mae tem bom gosto po, para)
-dorme bem Leo, meu gostoso ^-^
-ainda te faço cair no meu prato, ou seria eu caindo no seu ?
-
-
-
-
-rapaz, agora entendi a quebra de regras, macho, tu tava querendo achar uma forma de me agradar esses dias todo ? tem pergunta que eu não vou comentar mas fiquei tímida, rapaz, cada momento fico mais em shok, ah, isso explica o enamorados invertido quando fui caçar a ficha de Leandro, pra ver se era prestavel, rapaz, eu fiquei tímida.
-o homem indo buscar resposta no além, po, ah vei, eu tenho problema da cabeça, mds, eu so devo ta doida msm, safado, fiz as mesmas perguntas pra tu
-ah pqp, leo, por um acaso tu preparou uma roda da fortuna/ uma borboleta pra mim ? que foi justamente esse caso ? ó vei, to feliz ^-^ sei nem como vou dormir assim, vou gastar minha energia no vitruvio
-
-
-
-
-
-
-
-
-
-
-### Tu foi perguntar ao tarot minhas linguagem de afeto num foi? 
-### caramba vei, fiquei em shok com essa, achei que tu ia querer saber outras coisas 
-### ah vei, vou dormir feliz
-### line vai dar um pouco de frio em leandro mas em minha defesa é pq o pensamento fazer ela de lanche transpareceu na minha cara e ela tava pensando o mesmo ai fudeu. to feliz, acompanhar meu casal pelos bastidores, assim o emocionado se controla e a emocionada tbm (inclusive, algo que eu tava falando com line, é que tipo, pra mim eu não vejo mais questão de ter um relacionamento tradicional em todos os sentidos pq eu ja perdi minha primeira vez,isso de nenhuma forma significa que sou bagunça viu, só namorando, tenho cabeça pra administrar caso n, pra mim to jogando o tempo do outro e o meu fora, e agora que pensei, tu fez tata vir me perguntar indiretamente sobre isso nao foi ? vou nem dizer nada, mas haverá sinais.) ela me perguntando se eu nao fiquei com ninguém antes do meu ex " defina ficar" ai la vai eu explicar do selinho que dei num tampinha no fundamental, em minha defesa, veja bem, eu fiz minha amiga beijar o rapaz que ela achava bonito e ela me fez dar um selinho no cara que eu mais detestava, eu ja era baixinha e o caba  um palmo menor que eu ai é foda, eu e ele indo lavar a boca depois dessa, descobri que fui meio que vingada anos depois, lembra do meu amigo tarado? pois é, ele ficou com o tampinha e gravaram video pelo que eu lembre so que o tampinha era do exército, namorava e era da igreja " so por ser do exército fiel não é " mas meu amigo disse que o porem tava em ele ser da igreja pq a mina dele era da igreja, inclusive ele me falou recentemente que se converteu, tava indo pr a igreja e levando a família, fiquei feliz por ele, tava com uma viagem com tudo pago pra Alemanha por um projeto que ganhou prêmio do porto, se era pala ou n, fiquei feliz por ele, finalmente ta seguindo um caminho melhor. (mainha usou o creme que dei a ela e adorou, ta vendo, a mae tem bom gosto po, para) 
-### dorme bem Leo, meu gostoso ^-^ 
-### ainda te faço cair no meu prato, ou seria eu caindo no seu ? 
-### rapaz, agora entendi a quebra de regras, macho, tu tava querendo achar uma forma de me agradar esses dias todo ? tem pergunta que eu não vou comentar mas fiquei tímida, rapaz, cada momento fico mais em shok, ah, isso explica o enamorados invertido quando fui caçar a ficha de Leandro, pra ver se era prestavel, rapaz, eu fiquei tímida. 
-### o homem indo buscar resposta no além, po, ah vei, eu tenho problema da cabeça, mds, eu so devo ta doida msm, safado, fiz as mesmas perguntas pra tu 
-### ah pqp, leo, por um acaso tu preparou uma roda da fortuna/ uma borboleta pra mim ? que foi justamente esse caso ? ó vei, to feliz ^-^ sei nem como vou dormir assim, vou gastar minha energia no vitruvio
-### agora ja sabe tudo sobre mim, agora  descobriu que sou chata. Não tem o que eu possa contar mais sobre mim
-### era por isso que não se aproximava ? 
-### eu jogo limpo sim, sou uma pessoa honesta, se minha atitude não tinha provado isso ainda então ainda não estou no nível que deveria estar.
-### poxa, eu fui olhar teu passado pq não queria ativar teu gatilhos, eu não fiquei desconfiando de tu. 
-### eu gosto de dar informações e segredos de presente, agora não precisa mais de mim.
-
-
-
-### eu mandei isso tudo ontem e não percebi que tava privado, eu tenho insegurança de não ser útil, pq isso é trauma que eu tenho de pequena, de ser usada e jogada fora. Line falou comigo bastante ontem mas pq tenho a impressão que ela tava me testando. 
-### tava querendo me isolar pra conseguir meu estágio, e eu sei que tu  ta lendo minha energia, perae que to atualizando mainha dos babados
-
-
-### atualização de hj, meu pai foi na loja da Tim resolver o chip podi e fez um barraco la e a mulher resolveu e mainha veio me contar que agora ele ta feliz com o problema resolvido dele e eu to feliz que não ficou pra mim ^-^ 
-
-
-### pq tu queria saber se eu jogava limpo ou se eu não mentia? ate ai eu entendo pq nao ajo nas posturas mais diretas, mas po, ate se eu superei meu ex é complicado, mas ok, mas até sobre meu futuro é foda, nem eu sei ao certo esse diabo 
-### Eu quero desenvolver minha carreira. não quero ouvir nunca mais na minha vida que eu não resolvo minha vida ou que atraso a vida dos outros, é pra isso que eu estudo, eu sei que devia lidar com os traumas mas meu jeito de lidar é empurrando a mim mesma pra um futuro melhor e calmo aonde eu não tenha que viver o mesmo.
-
-
-### eu gosto de tu, eu gosto de me dedicar e dar presente pra quem eu amo, e quero fazer isso com meu próprio esforço, não deixei de querer tu por nada n, so não quero parecer nem ser que nem as minas interesseiras que deram em cima de tu, eu sou extremamente orgulhosa, eu gosto de conquistar e ser conquistada, eu fiquei meio pra baixo pq achei que tu queria me descartar tbm, as vezes eu me questiono se tu quer realmente um namoro ou algo sério comigo 
-### eu sou estressada e tenho língua de chicote, pq ja sabendo disso tu ainda insiste ? 
-
-
-
-### eu tava vendo qual seria tua reação mas era praticamente minha energia refletida pq veja bem, eu so notei quando tava indignada que o repositório tava privado, eu podia ter escondido a parte da insegurança e deixado so flores? podia mas não gosto, se você se incomodar eu paro.
+### rapaz, é cada fofoca que os espíritos tras que fico passada, inclusive tu deu sorte, o vim vim me encheu tanto o saco que fui ver quem era que tava lendo minha energia e vi que foi tu.
+### eu sai excluindo todo mundo do insta pq tava estressada e querendo me isolar e agora to no pensamento, vou levar um sermão tao lindo e merecido quando eu for pedir pra seguir minha rainha, ctz que ela vai ficar revoltada, ja tava quase levando paulada de line ( em minha defesa, ela tava me trocando pelo macho dela e ainda tava deixando a faculdade de lado e eu tava ocupada correndo atras de conhecimento pra ta me preocupando com isso) 
+### ei po, se juntou ontem, eu anjinho e line, três divas, percebi que o segredo pra lidar com ele é tratar como uma diva, agora sim, da pra manobrar. 
+### eu postei um negócio de Zelda e ele veio me mostrar que jogava, po, zelda é foda, eu nunca joguei mas acho tao lindo, a trilha sonora é foda tbm.
+### tinha um joguinho, que eu amava, taonga, até hj sou triste que nao roda em celular, so no Facebook de pc, sim, sou apaixonada em jogo de fazenda, é fofo e relaxante, stardew meu nome costuma ser [645] mais outros dois códigos, assim sempre que alguem fala comigo eu ganho item raro do jogo, se ta no jogo é pra usar, não é erro é feature ^-^ 
+### achar coisa assim em jogo é minha especialidade, farmville, a hora do jogo sincronizava com a do celular, colocava uma monte de item na fila que demorava adiantava a hora, entrava no jogo, coletava e depois voltava pra hora normal e repetia, fiz tanto essa malandragem,  bons tempos.
+### fiquei na magoa ontem, eu mo feliz criando uma esteira de ia e tropecei num repositório ja pronto que fazia o mesmo '-'   pense na raiva, olhando o lado positivo, posso fazer um frankstein que fique do meu agrado, vou até ver testes, PQP EU ESQUECI DE FALAR COM JP ah vei (-_-")  veja, para fins de contexto, tem duas pessoas do meu grupo lidando com testes 1 da minha sala jp e outro dos pagantes que é Marcus, com o ultimo eu desenrolei mas jp era pra eu falar pq ambos não fazem documentação pra quem não entende testes, eu que peguei e vi uns nome estranhos fiquei sem saber que diabos eram aquelas tecnologia estranha, olhemos o lado positivo, o problema ja ta indo se resolver pq ja lidei com Marcus e descobri que tem 3 pessoas em testes, agora esse novo vai ser o escolhido a dedo por mim pra apresentar ^-^ num to que nem quenga pra ficar cuidando de tres materias sozinha. 
+### vou checar commit de segurança hoje, me sinto bem organizando tudo, da uma paz, agora que o pai ja me mandou a dor de cabeça da temporada pra testar meu autocontrole na pratica e eu reprovei vai demorar pra vir outro, eu sempre caio na paciência. hoje vai ser ajuste de read e currículo, tbm vai ser dia de pesquisa. (sou tarada em aprender coisas novas, sou muito curiosa, esses dias to descobrindo como criar métricas e vou aprender mobile pra me livrar daquele careca lindo, de Renan jamais falarei mal, ele podia me reprovar e não fez isso, é um querido ele, exigente tbm mas bom é assim, impulsiona a crescer. 
+### eu tava vendo um negócio, tipo, um video assim " acabei de chegar em casa e vejo isso aqui, essa plantando nao tava aqui, essa nao tava ali, aquela ali tbm não existia inclusive bonitinha ela, eu reparei nisso que minha esposa comprou, por mim eu estaria num apartamento pequeno, nem uma mesa desse tamanho ia precisar quem dirá as plantas, justamente por isso que eu reparo nas coisas, pq se não fosse ela eu não ia ter essa vontade de ir pra frente e ir conquistando as coisas ", 
+### tipo eu parei pra pensar e tipo, pra mim tu foi assim pra mim, eu jamais gastaria com certas coisas mesmo sendo pra mim e hoje eu tenho mais o pensamento de tipo, vou trabalhar e comprar isso pra mim pq eu quero ter uma vida melhor, e quero ter o orgulho de mostrar o que eu faço tanto quanto eu vejo tu ter de mostrar o que tu faz e isso me lembra, tua olhada de que tava com ciumes de eu falando com levi, achei fofis, coisinha mais linda meu deus, mas eu tava lidando com business, tava vendo se tinha jeito de skipar o da cisco (nao tem e nem comecei, me fudi lindamente, vou rushar e caçar um jeito com tarot, usar minha sorte tbm, e sim, minha sorte, coincidências estranhas são otimas pra essas horas " ain que não da pra terminar isso em 4 dias drielly " como assim n? quem disse? vou provar que consigo, perainda, pelo menos metade eu chego.
