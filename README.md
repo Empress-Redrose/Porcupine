@@ -1,9 +1,12 @@
-# Porcupine
-### leo, arrume algo pra se distrair, de verdade, eu to preocupada com a minha amiga e tu ta preocupado em ir fazer fofoca e resolver tuas bronca, eu vou lhe dar um tapa muito do bem dado se for tirar o sossego de minhas rainhas
-### eu quase perdi minha amiga leo, eu não quero isso, deixe ela descansar. 
-### não to te proibindo de sentar a mesa conosco, tu não ja se resolveu comigo pq não quis, eu quero sossego.
-### eu to me segurando muito pra não te mandar uns desaforo pq nem contigo queria falar mais, só deixe ela descansar, pare de preocupar a mente dela ainda mais por favor 
-### eu fiquei magoada com isso, tenho medo de perder minha amiga, segure sua imensa vontade de fazer besteira e se controle, to triste e preocupada de verdade.
-### se você fosse confiável eu pediria pra olhar se ela está bem nos dias que não posso. Eu tenho medo dela tentar ir pra Deus de novo, eu não tenho coração pra rolo Leo, eu quero paz pra cuidar dela como eu puder e quero que ela tenha a paz que ela me pediu e que contei demais no seu bom senso. Eu conheço ela, ela é forte, e gosta de resolver tudo sozinha, eu vou ajudar de bastidor que é minha especialidade, e quero que você a deixe quieta(nada de estresse, leve fofocas leves, nada de bronca pra resolver), se não vou lhe dar uma cadeirada ^-^ 
-### seja empático e use o bom senso, a amiga pode não ser proxima de tu mas é de mim e eu definitivamente não quero perdê-la. É a primeira vez que temo pela vida de alguem, é estranho e tenho medo.
-### não to bem. 
+### foi vcs que eu to ligada, principalmente tu, obrigado leo 
+### line veio me dizer que o boy dela falou incentivando ela a arrumar estági, quando ela disse que ele citou tais eu  pesquei que tinha coisa aí 
+### eu dei conselho a ela e ela tava me cantando que a irmã, se passasse pra uma vaga melhor ia recomendar ela e line ficou feliz que Leandro explicou como pra ela, eu achei que ele ia so jogar a informação, ele explicou direitinho pra ela montar um portfólio.
+##$ ela me contando que ele foi ficar com a menina no mato, a menina era usuaria e tinha ido com uma faca pq ficou desconfiada dele, eu ri
+### ela reparou que sumi no fim de semana, veio me perguntar pq eu tinha sumido em tudo ai expliquei pq eu tava depressiva (meu pai queria que eu resolvesse um monte de coisa, que precisava do cpf dele e dos dados bancários mas nao queria me dar e queria que eu resolvesse sem perguntar, e ainda ficou nos desespero dele perto de mim, eu estourei e ficou o clima maravilhoso em casa) 
+### agora to bem, descobri habilidades novas quando sem querer parei a ansiedade de line, eu não sabia que enamorados podia ser usado assim n vei
+### tu que vai falar pra minha rainha, é pra beber água,  piranha bonita é piranha hidratada beba água, se hidrate, se quiser chorar pense, lágrimas é um ótimo hidratante as vezes pro rosto, nao precisa ter vergonha 
+### eu falei sério, quero me reunir com vocês fora do github
+### eu amei isso, obrigado Leo, de coração S2 
+### porra vei, é foda  que tu sabe o que eu gosto, não me da flores mas escuta o que eu digo, po, ah safado, e revoltante, bonito e joga tão bem quanto eu.
+### o que tu quer comigo inclusive? 
+### tu sabe bem que quero um namoro. 
