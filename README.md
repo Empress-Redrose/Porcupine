@@ -1,21 +1,4 @@
-## BOO!
-
-
-
-
-
-
-
-
-
-
-
-### te dei um susto? 
-### fiz isso com mainha e ela me mandou ir rezar, ela gostou n kkkkkkkkkkk
-### eu queria preparar uma borboleta pra tu mas não posso, olhando por outro lado, quando chover ou se irritar com o vento lembre de mim te enchendo o saco, estarei bem representada isso é certo kkkkkkkkkkk
-### ei piranha, eu sinto que agora tu parou de levar minhas brincadeiras tão a serio e indentificar melhor minha expressão no texto, fico feliz ^-^ 
-### a propósito, eu não disse as coisas ontem pra te ofender nem nada. 
-### leo, de 0 a 10, o quanto você acha que tata vai ficar irritada quando ver que exclui ela do insta? em minha defesa eu achei que você tava encontrando arredores com ela pra saber de mim e ela não me disse nada e fiquei triste, eu exclui line tbm mas line foi por outro motivo, eu tava com crise de ansiedade e fiz uma limpa no insta, a vontade de deixar quieto um tempo. tata vai vir como um dragao e to com medo, começo a me questionar se foi assim que tu se sentiu quando me deixava indignada, a vida cobrando kkkkkkkkkkkkkkk
-### olhe veja, pq sei que tu é fofoqueiro que so a peste, eu achei que tu tava sabendo de mim pela minha rainha e ela não me disse nada, nisso tudo veio line e me disse que tata não acreditava muito no tarot e tinha contado as coisas a ela(line teve um tanto de sabedoria de me explicar que era melhor eu falar com tata, que era pra eu ser mais compreensiva etc), eu sei que ela iria me contar quando se sentisse confortável,  mas po, me senti a amizade mais imprestáveldesse mundo. e tu tava realmente usando ela de intercessora nao tava ? ei boy, tu fez o que pra convencer minha rainha, so pra eu saber o segredo 
- ### Essas é uma daquelas fofocas que daqui a uns anos a gente lembra e ve que foi um rolo doido engraçado
- ### me pergunto se de tudo eu hackei vosso coração nerd de cibersegurança, teus firewall não tava protegendo tao bem assim kkkkkkkkkkkk
+### Leo, se, eu mostrasse ou acontecesse de um dos espíritos falar comigo com tu por perto e eu te mostrar, qual seria sua reação? 
+### mainha me achou doida e meu ex ficou em negação, mainha so aceitou quando eu disse que o pai dela se importava muito com ela e lembro que na epoca, pouco antes ela tinha sonhado com ele e eu não sabia, isso sem contar que pedi ao pai um sinal na frente dela e ela não teve como negar, literalmente choveu ao meu redor mas em mim tinha um raio de sol, confesso que nem eu a acreditei no começo
+### queria me batizar na igreja mas sinto que seria heresia e que Deus não quer. eu me sinto lobo em pele de cordeiro na igreja, principalmente pra receber o corpo e o sangue de Cristo, pq mesmo sendo pedido do Cristo, pra mim ele fez isso pq sabia que o pai iria pesar a mão se ele pedisse o justo, pois as pessoas ja tinham errado muito, pra mim ele nos amou tanto ao ponto de aceitar como dele nossos erros e nos humanos ainda definimos isso como necessário, deus respeita as leis dos homens, jesus mesmo sendo inocente foi condenado em julgamento humano, por mãos humanas, queria achar uma pessoa que crê e ve tbm mas não consigo estar na igreja e aceitar o pão e sinto que o pai tbm não quer isso pra mim.
+### eu sei que tem na bíblia que é pra fazer isso em memoria de jesus, mas sempre me vem ao coração que estou ceiando a representação de um irmão que o ser humano quis diminuir a própria culpa fechando os olhos e um ser que foi gentil ao ponto de aceitar aquilo pq era o melhor pra aqueles que ele amava. sei la, desde pequena eu tenho essa visão, que vai contra o que a igreja ensina, confesso ser um medo bobo, mas fico receosa de tentarem me impor a lógica torta da igreja em mim se eu disser o que penso, e ja conhecendo minha língua de chicote isso nao ia dar certo.
