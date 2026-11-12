@@ -1,10 +1,10 @@
-### eu trocando pra 30 assuntos diferentes. gosto de tu Leo, ja não sei se acredito que tu ainda olha o que escrevo mas tudo bem
-### lembrei de uma coisa agora. meu pai disse que quando era criança ele tinha dois sonhos quando começasse a trabalhar e ganhar dinheiro, comprar uma lata de doce de goiaba e comer sozinho e comprar um pacote de biscoito recheado com goiabada e comer sozinho ( a lata ele ainda disse que seria duas, uma pra familia e uma pra ele sentar e comer sozinho até enjoar) confesso que eu ri e achei engraçado, na época que ele me contou.
-### é aleatorio mas acabei de ver um rabino, do mais absoluto nada. 
-### acho que vocês não vão dizer que olhavam meu git hub mas ta tudo bem. o barulho de água, da cascata atrás do divã da uma vontade de dormir. 
-### eu falo muito, queria ser mais normal as vezes. 
-### se preocupa n, não vou mandar um espirito pra tu nem nada kkkkkkkk
-### to meio tristinha hoje, queria ta trabalhando nos meus projetos mas to obrigada a descansar essa semana pq to sem pc ate o carregador chegar, é um inferno msm, fui ver se o carregador de celular funcionava no pc e nao funciona(eu nos comentários que o cara comprou o carregador de pc pra carregar o celular, me perguntei se o contrário era possível) 
-### do nada um deja vu, é sinal, é depois dessas que a vida começa a ficar interessante e aparecer aventuras, se prepare pra emoções forte e roletas russas hehe 
-### ei vei, pior que parei pra pensar, um dia antes de o ceo ser pego por gaia eu tava pesquisando ações da nvdia pra comprar, tipo, caramba, essa vai ser minha chance de testar na prática o que sei fazer pensando por esse lado to feliz. é eu querer me batizar que começa a chover, vou dizer ao pai mais vezes, bem que achei esse verão quente.
-### ah vei, alegria por encontrar algo pra fazer meu sangue correr, amo descobrir as coisas, bom descanso pra tu querido ♡ ### te amo cara, se tu tivesse aqui agora eu te daria um beijo tamanha minha felicidade 
+### Leo, era pra eu ter te perguntado pq tu gostava de mim naquela época não era? 
+### não vou mentir, eu disse a tata que vou superar quando vocês se formar e acho certo dizer isso diretamente. eu quero um namoro, mas quem pede não é a dama. 
+### eu quero alguém pra dar o meu carinho e sei que tu ta vendo esse diabo. tata sabe disso, eu falei a ela hoje que ia superar quando o ano acabasse pq não ia mais te ver. quem corre atrás de manter contato sou eu, te conhecendo tu diria faz pq quer ou se iludiu sozinha mesmo querendo falar outra coisa.
+### eu quero que supere suas insegurança ícaro. eu não machuco nem mordo, não tem pq ficar tão fechado. voce ja sabe como perguntar ao tarot, pergunte se estou mentindo. 
+### Eu quero voce mas nao dependo nem preciso de você, eu amo voce e quero você na minha vida pq eu gosto de quem me torno com você e sinto que tu tbm se torna uma pessoa melhor comigo.
+### eu quero realmente sair, te abraçar, te ver, parte meu coração que eu não vou mais te ver mas nunca tive a oportunidade de perguntar diretamente pq tu gosta de mim, achei que por sabermos que gostávamos um do outro a gente iria conversar mais, pra se conhecer. 
+### eu não quero ter uma lembrança triste e nem sentir que me despedi sem dar o valor que a pessoa teve pra mim.
+### encontrei minha rainha hoje por acaso e expliquei sobre o insta, ela entendeu, se resolveu melhor do que pensei, expliquei de leandro e conversei um tanto com ela. 
+## Se quiser, podemos recomeçar, fingir que nada aconteceu e sermos amigos pra conhecer um ao outro de novo, o que acha?
+## Dessa vez no mundo real
