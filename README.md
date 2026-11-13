@@ -1,19 +1,11 @@
-### meu gemini ficou fresco e não le topicos pesados, ah lula.
-### enfim, eu nao sei se expliquei direito mas em resumo lidar com energia é meio complicado. tu ta bem ? 
-### queria ter ido na formatura de vocês, me arrependi um tanto de não ter me inscrito na festinha.
-### inclusive, o amigo de sabado, acho que vou ser a razão pela qual ele vai ver que um relacionamento de verdade leva tempo kkkkkkkkkkk
-### que aventuras vou viver hj tbm não sei e ah, minhas técnicas é segredo, uma camponesa pura como eu jamais saberia de nada. um mago não revela seus truques ^-^ 
-### hmmm, me referia a tecnica de conquistar alguem, eu aprendo fácil o que uma pessoa gosta, o que voce tem em experiência pratica eu compenso aprendendo rapido e com observação meu divo.
-### bicha, não sei, me perguntaram o que eu pretendia fazer quando terminasse a faculdade mas penso seriamente que agora minha prioridade é so um estágio e pós faculdade vai ser juntar dinheiro pra um mestrado, quem sabe ate um mestrado em outro pais? pra isso eu ja planejo deixar uma quantidade guardada, e mesmo que eu faça faculdade aqui eu ja imagino em guardar pra não precisar de ninguém e numa emergência não vou precisar me desesperar me desdobrando em mil. 
-### outra coisa que penso é que ano que vem eu tenho que arrumar algo que dê renda passiva, quero um dia deixar o dinheiro trabalhando por mim e pra isso é necessário conhecimento e estrategia e infelizmente paciência. hj é estudar, tu ja parou pra pensar o que fazer com  os conhecimentos que tu ja tem e o que tu quer pro ano que vem ? 
-### inclusive, tempo não pode ser comprado, pra mim foi errado o que aconteceu e muita coisa ficou não dita mas por mim isso passou, se nos vermos a amizade que pra mim eu cultivei contigo continua intacta :v 
-### inclusive, se quiser, eu vou pras oficinas da tarde que vai ter no BB, se quiser aparecer é dificil não me encontrar, AMANHA, NO SABADO A TARDE, esqueci a informação importante desculpa .
-### tenho meu orgulho de ter tecnicas secretas de conquista que tu não sabe hehe.
-### e ai, orgulho de sua amiguinha sedutora? 
-### eu planejo continuar falando contigo mas quero te ver de vez em quando, nao to falando com uma porta rum 
-### isso ai é contigo, tempo eu sei que tu tem, eu tbm. 
-### inclusive to com medo, meu amigo quer me dar um troço chamado axé pra beber, nunca levantei minha sobrancelha tão alto, eu vou tomar? n, so pelo nome soa amargo, quelo n, é verdade, acho que vou comemorar meu aniversário com o pessoal da padaria e tem o amigo secreto, quer ir pro meu aniversário? amigo secreto eu sei que tu vai, se quiser so aparecer por lá, meu aniversário é domingo de dezembro na segunda eu levo bolo e guaraná pra comemorar, vou chamar as meninas tbm, Ah vei, agora que lembrei, tem o de tata 25 desse mês, vem comemorar conosco, não precisa ter vergonha, não seja timido ^-^ 
-### to de bom humor hoje, meu espírito mais brincalhão, inclusive, se preocupa com o que aconteceu nao, ta tudo certo agora, tudo na vida é aprendizado.
-### meu divo kkkkkkkkkkkkk, amanhã vai ser divertido, meu amigo quer ser meu cupido mas eu so não quis cortar as asas dele, esse amigo é bonito tem qualidades e tal mas ele sofre do mesmo problema do meu ex: ele quase nao fala. se é uma pessoa que não se comunicar direito tem tu, quero so me divertir, relaxa o coração que não vai ter nenhuma situação chata n, vai ser eu e meu amigo gay baixando as divas babilônicas 
-### eu to rindo e te mandando tomar no cu, infelizmente tarot não traduz isso. a gente não  tem nada, deixa de medo e vamo se divertir diabo, eu vou ficar fazendo fofoca e trocando informações agora mais que nunca. 
-### no meio de amigos nao tem como eu seduzir 100% do seu coração, deixe de ser medroso e bora piranha, vai nos tudo se divertir, tu vai ver, encarnar o diabrete, vai ser fácil ouvir minhas gaitadas 
+### agora que pensei, sobre a energia, tu nunca tinha parado pra pensar por esse lado não era? 
+### quando estiver sem energia force seu próprio corpo a se mexer, se estiver triste imagine agua sendo guiada pelas suas maos, dance, eu recomendo fazer isso sozinho mas vai do seu gosto. emoções tristes puxam a pessoa pra baixo, movimentar o corpo como se manipulasse agua ajuda a mentalizar a tristeza indo embora, pra raiva é bom luta 
+### alegria é bom música, pra canalizar a energia expandindo, usar o tarot pra ver a própria energia é bom por isso. 
+### planeja o que tu quer pra tua vida, eu tento sempre mentalizar que é melhor ser triste em dubai. Ou como eu gostava de dizer, um problema que eu quero no meu futuro ter que resolver, é reclamar que o teto do meu conversível nao abre.
+### se um dia se sentir pra baixo, lembre que alegria vem de dentro, amanha é um novo dia.
+### as vezes queria avançar uns anos da vida, hoje to feliz. Ei leo, quando eu falar essas coisas do passado eu não digo com raiva, falo so por dizer msm. 
+### hj o dia foi bom, fiz vitamina com canela, infelizmente nao dei um susto em mainha, ja engatei as coisas pra serem resolvidas pro projeto, to na paz. e ainda em shok que meu amigo perguntou meu tipo pra eu escolher um dos amigos dele que ele arrumava pra mim, eu ri um tanto, ei po, esse cupido é foda, ja me deu um relatório completo da outra parte, de coisas que não quis nem perguntar como ele sabia pra preservar a impressão que tenho do macho que ele quer arrumar pra mim. 
+### eu falei das minhas técnicas pq nao sabia se isso era curiosidade genuína de minha rainha ou tua, na dúvida prefiro nao contar todos os meus truques.
+obs : meus guias não fazem mal a ninguém mas a prioridade deles sou eu, minha evolução sendo mais precisa. quando se aprende a controlar eneegia a sua voz ou vontade pode ajudar pessoas ao redor a acalmar a própria ansiedade, por eu ja ter nascido com a falta de medo das coisas do outro lado eu consigo olhar com a razão e analisar e estudar.
+obs 2: imagine a energia como o sangue correndo nas veias, isso é mais fácil de sentir, e nao, não é pra fazer nenhuma loucura, é conhecer os próprios limites e gatilhos do próprio corpo pra se cuidar.
+### enfim, sextou! 
