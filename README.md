@@ -7,7 +7,7 @@
 ### bicha, não sei, me perguntaram o que eu pretendia fazer quando terminasse a faculdade mas penso seriamente que agora minha prioridade é so um estágio e pós faculdade vai ser juntar dinheiro pra um mestrado, quem sabe ate um mestrado em outro pais? pra isso eu ja planejo deixar uma quantidade guardada, e mesmo que eu faça faculdade aqui eu ja imagino em guardar pra não precisar de ninguém e numa emergência não vou precisar me desesperar me desdobrando em mil. 
 ### outra coisa que penso é que ano que vem eu tenho que arrumar algo que dê renda passiva, quero um dia deixar o dinheiro trabalhando por mim e pra isso é necessário conhecimento e estrategia e infelizmente paciência. hj é estudar, tu ja parou pra pensar o que fazer com  os conhecimentos que tu ja tem e o que tu quer pro ano que vem ? 
 ### inclusive, tempo não pode ser comprado, pra mim foi errado o que aconteceu e muita coisa ficou não dita mas por mim isso passou, se nos vermos a amizade que pra mim eu cultivei contigo continua intacta :v 
-### inclusive, se quiser, eu vou pras oficinas da tarde que vai ter no BB, se quiser aparecer é dificil não me encontrar.
+### inclusive, se quiser, eu vou pras oficinas da tarde que vai ter no BB, se quiser aparecer é dificil não me encontrar, AMANHA, NO SABADO A TARDE, esqueci a informação importante desculpa .
 ### tenho meu orgulho de ter tecnicas secretas de conquista que tu não sabe hehe.
 ### e ai, orgulho de sua amiguinha sedutora? 
 ### eu planejo continuar falando contigo mas quero te ver de vez em quando, nao to falando com uma porta rum 
