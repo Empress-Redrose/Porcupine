@@ -1,5 +1,4 @@
-eu ia/vou fazer uma comemoração surpresa pra minha rainha. meu aniversário eu acho que vou comemorar sozinha ent esse planejamento deixe quieto.
-se quiser cantar parabéns conosco, acho que não tem problema. 
-### achei que tu tinha feito o amigo secreto ser cancelado.
-### pq se eu fico sem falar com tu sempre tenho a sensação que tu vai encher o saco de tata? 
-### vou caçar o show de Lenine agora.  hoje vou poder refletir em paz.
+### encontrei teu amigo e fiquei um tempo num show de punk que tava tendo la na moeda.
+### não encontrei o show do Lenine.
+### _final de festa, é uma sensação estranha, a música ao fundo, ao longe, o leve som do mar e a brisa marinha batendo no rosto. as estrelas, tao belas quanto joias, a lua em sua forma de sorriso caprichoso, vejo casais e pescadores a minha esquerda, a minha frente o mar profundo, onde começa o mar e termina o céu? onde começa o céu e termina o mar? terá tido essa vista tambem o menestrel?_
+### _Ela se perguntava como uma noite pode fazê-la questionar tudo o que pensou, conversou, sorriu, dançou, cantou, mas nada disso importou. Ela estava em paz, satisfeita consigo apesar de tudo mas ainda sentia que algo lhe faltava. parou um momento e percebeu estar se tornando uma das coisas que sempre temeu, viciada em trabalho, não tinha bebido mas mesmo diante do mar sua mente divagava pra muitos lugares menos no mar a sua frente_
