@@ -1,11 +1,10 @@
-### agora que pensei, sobre a energia, tu nunca tinha parado pra pensar por esse lado não era? 
-### quando estiver sem energia force seu próprio corpo a se mexer, se estiver triste imagine agua sendo guiada pelas suas maos, dance, eu recomendo fazer isso sozinho mas vai do seu gosto. emoções tristes puxam a pessoa pra baixo, movimentar o corpo como se manipulasse agua ajuda a mentalizar a tristeza indo embora, pra raiva é bom luta 
-### alegria é bom música, pra canalizar a energia expandindo, usar o tarot pra ver a própria energia é bom por isso. 
-### planeja o que tu quer pra tua vida, eu tento sempre mentalizar que é melhor ser triste em dubai. Ou como eu gostava de dizer, um problema que eu quero no meu futuro ter que resolver, é reclamar que o teto do meu conversível nao abre.
-### se um dia se sentir pra baixo, lembre que alegria vem de dentro, amanha é um novo dia.
-### as vezes queria avançar uns anos da vida, hoje to feliz. Ei leo, quando eu falar essas coisas do passado eu não digo com raiva, falo so por dizer msm. 
-### hj o dia foi bom, fiz vitamina com canela, infelizmente nao dei um susto em mainha, ja engatei as coisas pra serem resolvidas pro projeto, to na paz. e ainda em shok que meu amigo perguntou meu tipo pra eu escolher um dos amigos dele que ele arrumava pra mim, eu ri um tanto, ei po, esse cupido é foda, ja me deu um relatório completo da outra parte, de coisas que não quis nem perguntar como ele sabia pra preservar a impressão que tenho do macho que ele quer arrumar pra mim. 
-### eu falei das minhas técnicas pq nao sabia se isso era curiosidade genuína de minha rainha ou tua, na dúvida prefiro nao contar todos os meus truques.
-obs : meus guias não fazem mal a ninguém mas a prioridade deles sou eu, minha evolução sendo mais precisa. quando se aprende a controlar eneegia a sua voz ou vontade pode ajudar pessoas ao redor a acalmar a própria ansiedade, por eu ja ter nascido com a falta de medo das coisas do outro lado eu consigo olhar com a razão e analisar e estudar.
-obs 2: imagine a energia como o sangue correndo nas veias, isso é mais fácil de sentir, e nao, não é pra fazer nenhuma loucura, é conhecer os próprios limites e gatilhos do próprio corpo pra se cuidar.
-### enfim, sextou! 
+### bicha, KKKKKKKKKKKKKKKKKKK PQP, o professor falando de conta do gpt pro compartilhada que permite fotos +18, numa dessas a menina colocou umas fotos pra fazer retoque e ela tava dividindo a conta com o amigo do professor kkkkkkkkkkkkk vtmnc, to rindo demais. eu venho em curso de ia so pra ver gente, nem pra ensinar um crew ai da vida, o que é um agente ou maneiras de maximizar o uso de skills
+### eu fazendo imagens baseadas no futurismo, usei tanto ia pra criar terminais em estilos bonitos que peguei umas manhas to torcendo pra ter certificado, que tenha certificado meu Deus. 
+### hoje vou ver algumas palestras e descansar, tava com saudades de me enfiar numa tela 
+### inclusive, parabéns pela formatura, não lembro se eu disse, pra minha rainha vou dizer depois se não eu choro de novo, mas parabéns por conseguir se formar piranha, fico feliz por tu, parabéns 
+
+
+
+### inclusive, eu tenho minha própria crença sim, no passado isso era chamado de alquimia e eu seria um cientista, infelizmente entrava na heresia igualmente mas isso é mero detalhe. 
+### rapaz, esse professor não me ensinou nada novo mas até que ta divertido rapaz. (eu ja planejando entrar na minha caverna e so sair com 5 projeto concluído na conta, deixa so eu poder usar meu pc, vai ser o monstro saindo da jaula, cortar a unha pra digitar mais rapido e tomar meio litro de cafe de almoço)
+### inclusive, acho que esse palestrante é bicha, tenho 99% de certeza, os outros 1% tava distraído nas músicas de kpop do livro dele ilusions Boys, se não for começou a dar seta faz um tempo, e as músicas sao muito boas cara, eu gostei 
