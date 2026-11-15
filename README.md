@@ -14,6 +14,14 @@
 ### Sabe uma coisa? quando eu era pequena eu costuma ser honesta quando não gostava de uma comida, hoje eu paro, e digo," ta bom mas pro meu gosto voce sabe que iria mais sal, mas ta gostoso", a pessoa vai ficar feliz, pessoa vulgo mainha, meu pai tem pressão alta, entao o sal precisa ser pouco. ja aconteceu dela queimar meu bolo de aniversário e eu brinco ate hj, foi engraçado, pior que meu pai gostou do amargo pq lembrava os bolos que a familia dele fazia deduzo eu, pelo que ele conta, isso eu deduzo. 
 ### ah, nostalgia, eu indentifico nostalgia, não tinha pensado que esse era o nome, gostei. Se tu observar tua familia vai notar coisas assim tbm, pode não resolver tudo mas vai deixar o clima mais pacífico, indentificar isso. 
 ### Leandro vai pra igreja e pra psicóloga, minha rainha querendo dar uma de psicóloga pra ele, primeiro passo pra dar errado (eu de voz da experiência, virei exemplo de o que não ser ) eu disse a ela aproveite o momento, de espaço pra ele falar e so, nao va atras, de independência a ele. 
+### queria que o ano acabasse logo, assim que terminar eu vou fechar esse ciclo da faculdade e so deixar espaço pra poucas pessoas. ja que na vida real a gente não se conhece nem conversa então final da faculdade vai ser uma despedida suficiente pra encerrar esse ciclo. Queria que a gente tivesse dado certo, mas é errando que se aprende ne? hoje pela primeira vez não quero olhar o lado positivo 
+### " é mais facil aprender a amar alguem do que ensinar alguem a te amar" 
+### penso se devo dar uma dica pra um dos que gostam de mim, eu aprendo com o tempo mesmo e ja to desiludida com o amor. Queria que alguem tivesse me ensinado o que sei hoje antes. assim talvez tava eu e tu andando pelo marco zero vendo os shows juntos eu sei que não pq tu é fogo de palha, mas é isso. 
 
 
+
+
+.
+
+### ah vei, to triste de novo, enfim, vou pros estudos.
 
