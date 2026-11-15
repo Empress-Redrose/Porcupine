@@ -8,3 +8,6 @@
 ### tenho a sensação que to esquecendo alguma entrega importante mas não lembro o que. Agora que pensei, sera que da pra rodar llama no celular? vou procurar 
 
 ### uma curiosidade sobre mim, amo jogar stardew valley em janeiro nos dias que chove ouvindo another love, nao questione pq, mas fazer isso me traz uma paz. minha cor favorita é roxo inclusive, e tenho uma bateria social ruim pra lugares barulhentos demais, a nao ser que eu fique num lugar meio afastado(eu faço isso no tacaruna, sento no chao no mesmo canto todo show, qualquer dia vou com minhas rainhas e tento dançar no meio da roda. 
+### eu esqueci de ser específica mas as fotos do meu ex que tenho não é nada que tu ta pensando n, é pq eu fiz uma limpa mas tinha muita foto minha e dele e fiquei refletindo se apagava ou deixava, quando vi que tinha muitas eu perdi a paciência e deixei pra la. 
+### veja, eu nao vou dizer quem é a pessoa em questão pq ainda estou resolvendo, sendo honesta ja sei como agir mas poxa, preguiça, na duvida ignorar. 
+### tu se incomoda de eu chamar tu de leo ? 
