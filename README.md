@@ -1,17 +1,4 @@
-### tava fazendo exercício, o cardio da semana ta pago, enquanto isso lembrei do negócio de codigo no meu celular, essa vai ser minha maior vigarice.
-### to um tanto estressadinha em como cortar o contato ou proximidade com uma pessoa muito chata, eu bloqueei e o caba foi caçar meu insta e descobrir que eu tinha bloqueado mesmo eu mudando o nome. 
-### ele quer pq quer foto do meu ex. eu disse que ia ver se tinha e provavelmente tem, mas vou mandar nada, tu é doido, ele que se entenda com meu ex, é o único que falta na cartela de bingo msm. lidar com pessoa assim é complicado, alguns habitos voltam.
-### bicha, to pensando o que faço pra beliscar  de noite, acho que vou fazer ovo frito com maionese e queijo (sim, maionese, o cítrico da maionese e o sal dela da um gosto legal, meu paladar gosta de combinações estranhas, sei la quando vou achar uma sinfonia entre essas combinações, uva e morango com um queijo amarelo estranho que meu pai tras pra mim e mainha por exemagua plo, delicioso)
-### to pensando se faço crepioca pra comer junto ou se vejo se tem cuscuz. vou comer verdura tbm, nao comi muito verdura hj. e minha mae ficou me olhando estranho quando coloquei canela na boca e comi um pedaço de banana e depois achei mais sensato pela cara dela jogar a canela na banana mas aparentemente o problema era a canela msm, em minha defesa tava com preguiça de fazer a vitamina pq tava quase na hora do almoço. e sim eu realmente tenho esse hábito pq é mais fácil recuperar a mente se nao tiver o conjunto todo lascado. mas o hardware e o software fudido ai me quebra, por isso mesmo to me cuidando, se minha rainha souber que quase nao bebi agua ela vai me dar um corte tramontina.
-### ei Leo, gosto de tu. vou esperar a aventura de ir buscar meu carregador, coloquei pra um lugar que so deus e o diabo sabia da existência antes de eu comprar esse carregador, é em tese um shopping mas assim, o em tese que complica, fica no meio do mato.
-
-### tenho a sensação que to esquecendo alguma entrega importante mas não lembro o que. Agora que pensei, sera que da pra rodar llama no celular? vou procurar 
-
-### uma curiosidade sobre mim, amo jogar stardew valley em janeiro nos dias que chove ouvindo another love, nao questione pq, mas fazer isso me traz uma paz. minha cor favorita é roxo inclusive, e tenho uma bateria social ruim pra lugares barulhentos demais, a nao ser que eu fique num lugar meio afastado(eu faço isso no tacaruna, sento no chao no mesmo canto todo show, qualquer dia vou com minhas rainhas e tento dançar no meio da roda. 
-### eu esqueci de ser específica mas as fotos do meu ex que tenho não é nada que tu ta pensando n, é pq eu fiz uma limpa mas tinha muita foto minha e dele e fiquei refletindo se apagava ou deixava, quando vi que tinha muitas eu perdi a paciência e deixei pra la. 
-### veja, eu nao vou dizer quem é a pessoa em questão pq ainda estou resolvendo, sendo honesta ja sei como agir mas poxa, preguiça, na duvida ignorar. 
-### tu se incomoda de eu chamar tu de leo ?
-
-
-
-### ps, eu tinha feito uma limpa sim, e das bem feitas, apaguei as que era eu e ele dessa vez, se tiver em outro canto faço nem ideia 
+### meu bem, por um acaso voce tinha me chamado? 
+### to tentando ser mais delicada no trato, aparentemente eu sou muito pedreiro segundo line (eu chamo de princesa e a pessoa ainda adiz que não sou delicada, que isso? que exagero, ela odeia o " porr negao" ela me perguntando quem é esse negao que eu tanto xingo kkkkkkkkkkk) 
+### tava perguntando de tu que fiquei com umas curiosidades, ta benzinho? (com o tempo eu acostumo, da um negocio ruim, uma sensação ruim, me acostumei muito a ser gentil assim quando to puta contigo, fica dificil mudar a configuração) 
+### vou jaja dormir, boa noite Leo 
