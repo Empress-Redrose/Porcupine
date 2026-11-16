@@ -1,4 +1,5 @@
-### Eu não sei se tem problema eu te chamar assim, eu tenho dificuldade de chamar os outros por nome carinhoso, principalmente pq eu uso nomes carinhosos pra controlar a língua de chicote.
-### eu vou deduzir que nao se incomoda. to planejando o que vou fazer nas férias, pensei em sair com as meninas mas to pensando, pq assim que comecar as ferias queria engatar nos estudos pra uma prova, acho que 3 semanas é suficiente pra eu aprender o assunto todo (aja cafe)  e o restante, na parte de dezembro aproveitar as festividade e janeiro engato
-### vou doar sangue so nao defini o dia ainda. inclusive, eu não consigo te chamar de meu bem falando serio, tu me lembra muito aquela musica zorro do asfalto" me chama de meu bem, meu ego sobe assim, pois quando eu andava a pe nem olhava pra mim" por algum motivo, que eu não sei, tu tem muito cara que combina com essa musica. 
 
+### ve, hj eu ia pro porto resolver bronca mas ta fechado (me fudi muito) mas encontrei pc ainda na cesar( ó glória), vou ter que ver o projeto.
+### eu ate perguntaria como ta teu projeto mas é aquela coisa, tem tu nele, ent ja sei que ta tudo ok. mas como tu ta ? 
+### não faço ideia quando vai ser apresentação, tem uma pra essa sexta inclusive, uma atividade que vale nota de mobile pra essa sexta. 
+### meu Deus, eu esqueci o curso da cisco, sei nem se vale nota esse diabo puts, era isso que eu tava esquecendo, agora eu vou voltar ao job, pausei pra dar um oi so 
