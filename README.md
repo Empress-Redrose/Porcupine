@@ -1,8 +1,4 @@
-### Bom dia Leo 
+### Eu não sei se tem problema eu te chamar assim, eu tenho dificuldade de chamar os outros por nome carinhoso, principalmente pq eu uso nomes carinhosos pra controlar a língua de chicote.
+### eu vou deduzir que nao se incomoda. to planejando o que vou fazer nas férias, pensei em sair com as meninas mas to pensando, pq assim que comecar as ferias queria engatar nos estudos pra uma prova, acho que 3 semanas é suficiente pra eu aprender o assunto todo (aja cafe)  e o restante, na parte de dezembro aproveitar as festividade e janeiro engato
+### vou doar sangue so nao defini o dia ainda. inclusive, eu não consigo te chamar de meu bem falando serio, tu me lembra muito aquela musica zorro do asfalto" me chama de meu bem, meu ego sobe assim, pois quando eu andava a pe nem olhava pra mim" por algum motivo, que eu não sei, tu tem muito cara que combina com essa musica. 
 
-
-
- 
-### BOM DIA MEU AMOR, ACORDA QUE O SOL JA RAIOU, hehe, é uma piadinha pra começar bem o dia 
-### meu princeso S2 Va la e arrase no seu dia, abale kkkkkkkkkkkkk
-### hj manheci bem
