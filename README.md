@@ -1,8 +1,1 @@
-### obrigado Leo
-### eu to melhor, obrigado por se preocupar princesa, vou beber um remedio pra febre e torcer pra hayana escolher a dedo outra pessoa hj. ainda to meio depressiva mas vai passar. 
-
-### eu nao quero apresentar hj, leo, voce me julgaria se eu disesse que quero me afastar de todos um tempo? to exausta e quero ficar quieta e vou ter que dar um perdido dos bons. se, tu ainda quiser conversar comigo quando acabar a faculdade, tem problema irmos pra praia? so pra sentar na areia e conversar, teu ciume bobo é engraçado, eu gosto, tu falando do tubarao, que motivo engraçado.
-### não vou mentir, vc me parece fresquinho pra lugar. por mim eu entro e saio em viela, me perco? sempre, mas ninguem pode dizer que nao me divirto. o centro da cidade de noite é muito bonito, o onibus que eu pego passa pelas ponte e a luz reflete na agua . acho que vou achar algum lugar que eu gostaria de te mostrar, eu tenho  4 lugares favoritos, uma parte escondida do tacaruna que eu vou pra tomar todinho e fugir do povo, jaqueira, tamarineira e o gramado, ja chorei e ri tanto naquele gramado, rezei tbm. 
-### o do tacaruna é um que eu te mostraria, nao tem shopping mais bonito, nem riomar ganha na minha visao, meus amigos e eu costumavamos ir andando pra la,cruzavamos o mirabilandia no caminho e ia, um medo de sermos assaltados, ficavamos brincando de quem seria o sacrificio  e era eu pq corro devagar kkkkkkkkkkk
-### fui perguntar ao tarot se meu ex tinha acesso a mais alguma coisa que eu nao lembrava e na duvida troquei a senha dos outro emails, por um acaso achei o email principal dele logado nesse pc aqui e tirei tbm. 
-### eu nunca fui pra praia de porto de galinhas, quer ir comigo? se perder e tentar achar o caminho pra casa(mentira, quando é urgente meu senso de direção da um conect com a fonte de mapeamento kkkkkkkkk), o bom é falar com pessoas novas, meio mundo ja conhece meu senso de direção por isso.
+### boa sorte leo!
