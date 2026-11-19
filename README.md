@@ -5,3 +5,6 @@
 ### espero que voce arrase divo
 
 ps: tu parece ter gostado da ideia da praia, fico feliz, fininho assim precisa ter medo de tubarao n, so do vento, quem tem que ter medo do tubarao sou eu kkkkkkkkkkkkkk ( leva a serio meu bullying n, eu gosto de brincar) eu ia dizer que dava pra resolver o vento ficando agarradinho comigo mas sem exageros, to sombria hj
+
+
+descobri pq nenhum teste detectou a divergencia entre o back e mobile, nao existia teste pra mobile, nenhum tipo de verificação de integração. agora é refatorar como nunca, agora eu compro ummes de claude pro, não tem como, minha sanidade ta valendo isso n, mas puts, que situação
