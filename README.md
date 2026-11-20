@@ -7,3 +7,6 @@
 ### enfim, meu pensamento
 ### ei po,  tu e eu quando escreve engole umas palavras não é, agora que lembrei, a letra eu sei que tu entende, mas a forma que eu escrevo, te incomoda? ( não é pra ofender, imagine que vejo minha forma de escrever como um sotaque diferente, nem todo sotaque é entendivel mesmo sendo mesmo idioma, daí minha duvida.)
 ### menino, eu tava vendo que tu consegue entender o que eu digo mesmo eu engolindo palavra pq se acostumou, que isso, me senti invadida, eu esperava isso não, não é por nada, mas como tu consegue acompanhar tantas linhas de raciocínio ao mesmo tempo e até texto longo tu aprendeu a ler e gostar, me veio a expressão " menina te preserva" na cabeça, nem sabia que era possível mas fiquei com vergonha 
+### eu vou endoidar, tem uma parte dedicada a agents no github agora, DEDICADA, D.E.D.I.C.A.D.A, puta que pariu, que foda velho, minha paixão ta ganhando espaço, claudinho meu amor S2, vai eu, o claude, copilot, o gemini e o gpt se unir mds
+### perdão, mas ia pra mim tampa meu gap de escrever codigo bruto, que é algo lento e chato, me faz ter a adrenalina, simplesmente maravilhoso. to feliz, antes foram os conectores no gemini agora isso, assim mata o papai foi 70% do meu copilot na conta principal o bom é que tenho 3, balão 
+
