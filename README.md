@@ -1,5 +1,2 @@
-### bicha, eu e line se juntou, e rachou um pote de doce e salgadinho pq a padaria do pilar ja tava fechada pra comprar pao, mortadela e guarana kkkkkkkkkkkkkkkk, vi uma flor bonita e ficou eu e leandro debatendo qual personagem de lol ela parecia mais 
-### refatorei o codigo todinho, nao escapou nada, amanha é testar. line disse que o namorado de tata tem ciumes da gente, ai eu to debatendo com ela pra sair nos cinco(line e o dela, tata e o dela) pq ai o caba conhecendo a gente nao vai pensar que estamos roubando a namorada dele nem excluindo ele ou algo assim, mas se for vacilao a gente rouba msm, leva ela pra uma praia pra ver um sol. 
-### se vai dar certo nao sei mas vou lançar a ideia quando ela tiver mais tranquila
-### o que foi po, tava debatendo qual casquinha era melhor e se eu iria levar um fecho de tata ou do homem dela por chamar ambos pra jogar uno e de segredo comer pao mortadela e guarana, sim, juntou eu e line, rachando um salgadinho, um pote de doce e ela ainda dividiu um chiclete tbm. relaxe o coração. o copilot aceita agentes agora, to tao feliz, quando vi, foi so o happy nation tocando na minha cabeça, e puts, como assim nao é todo mundo que sabe otimizar o uso do claude? eu fiquei surpresa
-
+### tava vendo uns video de gta 6, ei po KKKKKKKKKKKKKKKKKKK REALISTA NÃO POSSO DIZER QUE NÃO TA kkkkkkkkkkkkkk, "reparou algo diferente em mim?" mds, isso é muito coisa que pergunto, me identifiquei 100% 
+### enchi o rabo de cafe ai tava me distraindo no insta e lembrando os projetos que faltam. voy dançar um tanto e ir mimir.
