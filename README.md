@@ -3,3 +3,4 @@
 ### oh its to see you but I wish you were right here and oh it's hard to leave you when I get you everywhere 
 ### eu queria saber que é real e não coisa da minha cabeça, eu queria poder te ver e dizer sobre o que sinto, perguntar o que tu sente e tua cor favorita, queria um relacionamento que tivesse conversa de verdade, ouvindo a voz do outro. 
 ### eu to organizando os pensamentos e os sentimentos, assim vai doer menos quando vcs se formar.
+### pq leo, pq mesmo depois de gastar tanto tempo em mim, ainda assim você não fala pessoalmente comigo. enfim, eu que me iludi sozinha não é ? você só queria amizade. desculpa, to meio sensível hoje, amigos...
