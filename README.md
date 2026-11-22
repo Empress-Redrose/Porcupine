@@ -1,6 +1,6 @@
-### vou dormir, mo sonin, depois é estudar e balão 
-### Quero encontrar alguem pra sair, eu gosto de conversar e ser carinhosa. por isso estou me despedindo. eu deveria ter te bloqueado e deixado tudo pra trás quando minha rainha tinha me dito, agora me apeguei eu vou ter que dizer adeus.
-### oh its to see you but I wish you were right here and oh it's hard to leave you when I get you everywhere 
-### eu queria saber que é real e não coisa da minha cabeça, eu queria poder te ver e dizer sobre o que sinto, perguntar o que tu sente e tua cor favorita, queria um relacionamento que tivesse conversa de verdade, ouvindo a voz do outro. 
-### eu to organizando os pensamentos e os sentimentos, assim vai doer menos quando vcs se formar.
-### pq leo, pq mesmo depois de gastar tanto tempo em mim, ainda assim você não fala pessoalmente comigo. enfim, eu que me iludi sozinha não é ? você só queria amizade. desculpa, to meio sensível hoje, amigos...
+### piranha loira.
+### to triste contigo, queria te ver, to na praia sozinha mas queria que fosse contigo pra apoiar minha cabeça em tu
+### o copilot e o claudinho ja terminaram tudo pra mim, me sinto um pobre premium que achou um jeito de automatizar a própria vida.
+### eu  queria realmente saber do teu dia
+### ainda não boto fe que tu é quieto. a lua ta bonita inclusive, vou mandar uma fotinho depois, na verdade  colocar de perfil é mais fácil.
+### piranha.
