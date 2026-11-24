@@ -7,3 +7,6 @@ ps: se for pra aparecer com algum amiguinho e esse amiguinho ser estevao ou char
 
 
 ### vai, eu to adiantando tudo do trabalhando correndo vou madrugar hj só pra poder te ver, vamo vai 
+### eu sei que tu é ocupadinho mas vamos, hmmmmm, so não sei como te encontrar, ah nas mesas perto do cinema, não lembro outro ponto de referência la, mas eu quero te ver e sair contigo vamos vai ;-; 
+### "o não ja tem, agora é tentar conseguir o sim" e então princesa ? 
+### pra ser justo poste a resposta no read me da conta secundária ou me surpreenda 
