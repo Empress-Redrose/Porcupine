@@ -10,3 +10,11 @@ ps: se for pra aparecer com algum amiguinho e esse amiguinho ser estevao ou char
 ### eu sei que tu é ocupadinho mas vamos, hmmmmm, so não sei como te encontrar, ah nas mesas perto do cinema, não lembro outro ponto de referência la, mas eu quero te ver e sair contigo vamos vai ;-; 
 ### "o não ja tem, agora é tentar conseguir o sim" e então princesa ? 
 ### pra ser justo poste a resposta no read me da conta secundária ou me surpreenda 
+
+
+
+### rapaz , line viveu uma aventura e o dia mal começou, ja to marcando com ela de paquerar a dona morte e flertar com a depressão, vou fazer isso na frente de tata  pra ver a reação dela, levar um sermão da minha rainha, faz tempo que não levo 
+### vamos fazer o lanchinho clássico, vai ser estudo e fofoca, ah, esse lado fofoqueiro da TI é o que eu gosto, ai sim, isso sim é vida, enfim divo, babado fortíssimo vai ser hj 
+### ah é, uma coisa, quando fico nervosa minha barriga faz barulho mas não é fome é ansiedade (-_-") 
+### aline não sabia dessa e achou que era fome, pior que ela tem estômago assim tbm, ficou eu e ela rindo da ansiedade uma da outra, foi uma situação tão constrangedora que foi cômica 
+### ps 2: cafe intensifica essa ansiedade por isso to evitando tomar, é foda. 
