@@ -5,7 +5,15 @@
 ### pior que deu vontade de jogar resident evil, mas dou certo pra isso n, ou incorporo o coringa ou shaco. das duas uma. ah é, sempre esqueço as formalidades BOM DIA LEO, 
 ### se eu contar uma coisa, promete que não me julga?
 
-
+---
+-
+-
+-
+-
+-
+-
+-
+-
 ### Ei leo, ja que num tem aula quinta quer sair comigo? tu parece gostar do boa vista então a gente poderia ir pra lá e ficar conversando 
 ### convidar assim é meio paia mas tenho que ser menos intensa ja que tu não ta tomando muita iniciativa além do block
 ### bora bora, vai, vamos, vai ser divertido, vai vai (* - * ) por favorzinho (todo fofinho na foto com alvaro rapaz, bem bonitinho)
