@@ -15,6 +15,9 @@
 ### eu achei que tu iria querer algo mais clássico e seguro que nem cinema, mas eu iria ficar nervosa mesmo querendo me aproximar e não tem nenhum filme que eu lembre ser legal, ai mds, eu vou infantar, caramba vei, to sem palavras 
 ### nao sei descrever o que se passa comigo n, mas to feliz , ah é, eu danço kpop, tu se incomoda com isso? 
 ### é estranho alguém aceitar minhas nerdices, tava acostumada com as pessoas so aceitarem meu lado dama fina e recatada, é estranho alguem ver meu lado louco e gostar msm assim mesmo não sendo só por aparência (principalmente que quando tu começou a reparar msm em mim eu estava detonada, derrubada msm, a força de 10 cavalo morto) 
+
+
+### caramba vei, tu ta lendo mais rapido que de costume hj, fiquei nervosa, da nem pra desligar o Wi-Fi pra não ver mds, gosto de tu leo
 ---
 -
 -
