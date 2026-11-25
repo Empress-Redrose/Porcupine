@@ -5,6 +5,9 @@
 ### pior que deu vontade de jogar resident evil, mas dou certo pra isso n, ou incorporo o coringa ou shaco. das duas uma. ah é, sempre esqueço as formalidades BOM DIA LEO, 
 # se eu contar uma coisa, promete que não me julga?
 
+### veja bem, eu tava pensando e não consigo ser tão solta quanto gostaria no shopping pq sei que vou ficar com vergonha, ai pensei num cinema mas depois pensei sera que leo iria no gamestation comigo? ele vai me achar ainda mais doida de querer ir num negocio desses num primeiro encontro, mas sera que tem algum joguinho de tiro la? ai eu tava pensando nessa possibilidade mas tava com vergonha de perguntar, pq eu e tu vai ficar nervoso e não queria que ficasse umsilencio desconfortavel por a gente não saber o ritmo de fala um do outro, sem contar que se eu falar tao rapido quanto escrevo tu não vai entender nada especialmente se eu tiver distraida
+### eu fico com um pouco de medo de tu me julgar tbm mas eu sou nerd e antisocial, eu não gostava antes muito dessas coisas pq sempre tinha que levar mais gente e eu não tinha la muito poder de escolha e tinha que depender de agenda alheia e etc, muita coisa minha mente deixa de processar. desculpa, eu realmente não  sei bem como me comporto, ai fico ansiosa, eu gosto de animes e manhwa inclusive, amo rpg, menina nerd costuma atrair nerd estranho entao nao costumo falar muito dos meus gostos, mas como da pra ver eu resumo historias muito bem, so nao tive tempo nem obras pra ler nos ultimos meses, ah, quando to nervosa eu digo coisas aleatorias mds, eu vou voltar ao trabalho mais 1k de linhas de codigo pra revisao
+
 ---
 -
 -
