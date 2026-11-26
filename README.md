@@ -1,5 +1,7 @@
 ### Se eu nao tivesse esses hobby, se ela não tivesse visto quem eu realmente sou nada disso teria acontecido 
 ### acertei?
+
+### ps: se eu não tivesse descoberto voce não seria tão interessante, nem sequer teríamos gostado um do outro, no fim, não foi bom eu ter descoberto a gente se apaixonado um pelo outro de verdade ? agora voce ve que não sou perfeita e vice versa, e ta tudo bem, o relacionamento é nosso, quem tem que fazer dar certo é eu e tu ent não precisa ter medo nem ficar com vergonha, eu quero realmente que se sinta confortável comigo, so não consigo mentir e fingir que nao te vejo, principalmente quando eu tbm amo os mesmos hobbys que tu
 ### eu gosto de você, isso inclui seus gostos, eu sei respeitar(isso é respeito, o hobby é seu, nao tem o que eu me meter se não afeta, e a maioria eu até gosto) , eu perguntei ontem ao tarot se  a gente iria se desencontrar pq eu não consigo ficar quieta num canto so entao pensei se eu não ia acabar me perdendo de tu se eu nao tivesse no lugar na hora marcada
 ### eu não to muito bem hj, os exercícios realmente estralaram bem o corpo, parece que um trator passou em mim, estou a cara da TI kkkkkkkkkk 
 ### eu me fecho muito, sabe uma coisa legal que aprendi com anjinho ? é que a outra pessoa as vezes gosta de voce e se interessa justamente pelos hobbys que vc não conta, apesar do fato de eu ser alérgica a casado e perceber que ele ta testando terreno ainda deu pra pegar uma sabedoria ai 
