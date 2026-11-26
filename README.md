@@ -1,3 +1,2 @@
-### bicha, babado forte, eu ja ia postando uma fotinho ai me veio aquele sussurro ne, posta que vem bronca pra tu, nao postei, deu nem 5min treta no grupo por causa de entrega, ain que delicia o verão, me livrei.
-### pensei em vir na minha skin nerd, mas de nerd minha personalidade é suficiente, arrumei um óculos que combina comigo, ai felicidade, to com inveja de quem trouxe o pc, vontade de acessar o copilot do celular mds, to viciada nisso ja, é foda. 
-### inclusive, merry christimas my dear, a cesar ta sempre tao seca e pacata que nem lembrava estar perto do natal, vou ate podar a árvore que vou usar pro natal. ei po, ta com portas de olho mágico no boa vista, mo bonitinho, teve uma que não vi, bora ver comigo meu amor pfv * - * 
+### ah é, não consigo sentir tua resposta estando no meio de tanta gente, eu vim mais cedo por causa de outra coisa. o horário das sete continua so pra deixar claro.
+### vim ver se tinha algum filme que preste do meu gosto mas ainda ta em horario de almoço, enfim
