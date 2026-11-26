@@ -1,5 +1,2 @@
 ### Leo, tu ta bem? 
-### desde ontem sinto tu meio quieto, se não tiver se sentindo bem não tem problema ficar em casa, eu quero te ver mas não quero te deixar ainda mais cansado
-### eu falei coisa demais ontem não é ? degupa, me empolguei. não precisa ficar nervoso, quando se sentir confortável a gente conversa sobre o read me do github todo, vamos manter a noite leve e so falar coisas mais simples 
-### hmmm, fica bem, eu não sei muito como reagir, eu não quero te deixar desconfortável nem nervoso 
-ps: bom dia leo 
+### cara, DNA com malware é simplesmente a coisa mais genial que vi na minha semana, tipo o DNA é dividido em 4 letras que podem ser transformadas em numeros 0 e 1, tipo a máquina vai ler a fita de DNA adulterada com o malware e o computador é infectado(teve todo um ajuste pra maquina ser infectada mais facil e pa mas o ponto é que é possivel, tipo pqp, hackear a nasa com a analise de uma cuspida, seria um negocio foda ) 
