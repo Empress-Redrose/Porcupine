@@ -7,3 +7,4 @@
 ### line tava me dizendo que tata parecia que ia se inspirar em tu e sair bloqueando todo mundo quando terminar a faculdade, não duvido, mas é liberdade dela.
 ### me sinto atrasada, sempre correndo contra o tempo e sempre atrasada. 
 parece que acabou de rodar deixa eu ir checar 
+terminou, to com medo, renan vai me dar uma bronca daquelas, ah inferno, eu queria mostrar mais dedicação nesse periodo, é foda
