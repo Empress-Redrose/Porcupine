@@ -1,10 +1,8 @@
-### tu tava curiando de mim que eu sei, eu queria sair com você e tu não vai. o que tu quer ? to muito simpática contigo n, ainda mais hj.
-### ta tentando me fazer companhia ou outra coisa Leo? 
-### não sabia o que era uma apk ate hj, nem configurar render ou o que era supabase, estou descobrindo a tres horas.
-### Renan vai me matar (-_-") 
-### line a pessoa fala as coisas pra ela e ela vai falar direto pro boy dela e ainda me pergunta se não era pra fazer isso "é exatamente por isso que não conto mas ja que anjinho fez graça pra me lascar vou devolver a gentileza" agora estou aqui pensando em como esse projeto vei podi podia ter ficado bonito. 
-### não obstante, o pior de tudo é tu se recusar a sair comigo. (-_-) eu ja sei que tu ve e tenta me responder (com dedicação admirável inclusive) mas eu quero um abraço.
-### line tava me dizendo que tata parecia que ia se inspirar em tu e sair bloqueando todo mundo quando terminar a faculdade, não duvido, mas é liberdade dela.
-### me sinto atrasada, sempre correndo contra o tempo e sempre atrasada. 
-parece que acabou de rodar deixa eu ir checar 
-terminou, to com medo, renan vai me dar uma bronca daquelas, ah inferno, eu queria mostrar mais dedicação nesse periodo, é foda
+### eu so devo ta louca de estar apaixonada por uma pessoa que me manda SMS mental as 2am 
+### terminei, vou pra final dele, é certo ja, eu precisava fechar essa entrega. ainda tem hayanna. 
+### o quão surpresos ficariam se eu apresentasse o codigo de cabo a rabo quando nem eles sabem o que fizeram ? 
+### ja sei as diretrizes pro proximo projeto, agora que a mãe ta calejada so preciso aprender a modularizar.
+### ainda to triste que tu não foi me ver.
+### eu estava debatendo com line ontem meu gosto pq fiquei " poxa, o que deixou esse homem tão bonito nessa foto" eu analisando e descobrindo que gosto do estilo bad boy, camisa preta, barba, brinco, eu e line discutindo ela dizendo tatuagem no pescoço e eu no braço, um estilo matrix é foda. pior que fui perguntar ao tarot o estilo que mais combina comigo e saiu piranha de um jeito fino(chega fiquei pensando, pare com essas brincadeiras gostosas) , ei po, mas o estilo camisa social com alguns botões aberto no pescoço não tem como, é de parar o coração kkkkkkkkkk eu e line fizemos uma análise e é um estilo lindíssimo
+### Boa noite Leo
+### pilanha.
